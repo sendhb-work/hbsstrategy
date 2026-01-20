@@ -31,4 +31,4 @@ With over **90 patents**, H.B. is a builder, inventor, and speaker, passionate a
 
 Whether you’re looking to spark innovation or gain insight into emerging technologies, HBS Strategy brings vision, experience, and practical tools.
 
-📩 *Contact us at [sendhb@gmail.com](mailto:sendhb@gmail.com) to book a session or explore collaboration.*
+📩 *Contact us at [hb@hbsstrategy.com](mailto:hb@hbsstrategy.com) to book a session or explore collaboration.*
